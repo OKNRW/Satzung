@@ -1,0 +1,2 @@
+# Satzung
+Die Vereinssatzung
